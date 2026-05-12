@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Polymarket bot with Polymarket AI-powered bot: scalping-strategies & volatility-detection. Featuring scalping-strategies and volatility-detection, it's the best
 
 
 
